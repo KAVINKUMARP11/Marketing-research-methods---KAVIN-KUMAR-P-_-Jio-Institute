@@ -1,1 +1,1 @@
-# Marketing-research-methods---KAVIN-KUMAR-P-_-Jio-Institute
+# Marketing-reserach-methods-Andri-Srivastava_Jioinstitute
